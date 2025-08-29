@@ -1,1 +1,2 @@
-X
+- Viel Praxisbezug
+- Moderne Codetechniken lernen
