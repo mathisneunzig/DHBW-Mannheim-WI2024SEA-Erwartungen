@@ -1,0 +1,2 @@
+Meine Erwartungen: 
+- Kenntnisse erweitern 
