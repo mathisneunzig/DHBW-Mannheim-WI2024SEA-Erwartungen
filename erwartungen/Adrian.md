@@ -1,0 +1,1 @@
+Meine Erwartungen sind: Viel Spaß beim Programmieren zu haben und tatsächliche Projekte komplett Umsetzen zu können.
